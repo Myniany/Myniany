@@ -7,4 +7,4 @@
 
 - 💬 Ask me about **Discord bot**
 
-- 📫 How to reach me **my discord** - .myniany
+- 📫 How to reach me **my discord** - mujandelstraznynademnouzlomilhul
